@@ -1,0 +1,20 @@
+{
+  "name": "whywehatefrance",
+  "version": "1.0.0",
+  "description": "(https://www.quora.com/Why-is-France-so-horrible)\r https://www.irishtimes.com/culture/heritage/38-reasons-we-should-hate-the-french-or-at-least-dislike-them-mildly-1.1724156\r https://www.reddit.com/r/AskReddit/comments/bdr6j/why_do_people_hate_france/",
+  "main": "index.js",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/HubertKuch/whywehatefrance.git"
+  },
+  "keywords": [],
+  "author": "",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/HubertKuch/whywehatefrance/issues"
+  },
+  "homepage": "https://github.com/HubertKuch/whywehatefrance#readme"
+}
