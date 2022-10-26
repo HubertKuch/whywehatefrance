@@ -1,3 +1,141 @@
+Sections
+The Irish Times
+
+Subscribe
+
+Sign In
+(Opens in new window)
+You have 2 free articles left this week. Try unlimited access just for €1 first month. Subscribe or Sign in
+
+
+History
+38 reasons we should hate the French (or at least dislike them mildly)
+An Irishman’s Diary about the need to overcome our national Francophilia
+
+Expand
+
+Number 1: Thierry Henry and that hand of his. Photograph: Benoit Tessier/Reuters
+Frank McNally's face 
+Frank McNally
+Thu Mar 20 2014 - 15:07
+
+I have a theory that the Irish rugby team's appalling record in Paris is the result of us having too much admiration for France as a country. I've racked my brain for a list of reasons we should hate the French, or at least dislike them mildly.
+1. Thierry Henry.
+2. The Normans.
+3. Irregular verbs.
+4. You spend years learning their language, then you go to Paris to practice it and they talk back to you in English.
+5. Nice food. Lovely wine. But they still can't make a decent cup of tea.
+6. The 2012 frozen pitch.
+7. The ugliness of Parisian hotel wallpaper as a contributing factor in the death of Wilde.
+8. The French paradox. They eat lots of fatty foods but don't get heart disease. It's not fair.
+9. The rudeness of Parisians.
+10. They even have a street called Rue Rude and the Irish Embassy is on it.
+11. In fact, the embassy is on the corner of Avenue Foch and Rue Rude. That's "Foch 'n' Rude", for short. (Okay, the "c" in Foch is soft, but first-time visitors aren't to know that.)
+12. We always hum along with their anthem at sporting events. They still don't even know the tune of ours.
+13. Foie gras. French women may not get fat, but goose livers don't have a choice.
+14. We gave them Joyce and Beckett, who revolutionised modern literature. They gave us Dion Boucicault, who devised a new improved version of the stage Irishman.
+15. Je t'aime (moi non plus) .
+16. They're obsessed with sex, generally.
+17. Even their bread is phallocentric.
+18. "Va va voom". The sound of Thierry Henry handling the ball twice and then getting away with it.
+19. Le Piat d'Or. The French didn't adore it at all. They wouldn't wash their cars with it, probably.
+20. We gave them the honour of playing the first rugby game in Croke Park. Then they ruined the occasion by winning, and with a gut-wrenching last-minute try.
+21. La trahison des (Vincent) Clercs .
+22. The original Chauvinist – Nicolas Chauvin – was French.
+23. The Marquis de Sade probably wasn't the original sadist, but he was so good at it they named it after him.
+24. When the Bastille was stormed in 1789, a shocking 14 per cent – at least – of the prison population was Irish. His name was James Francis Xavier Whyte (there were only six or, by some accounts, seven inmates left at the time of the storming) and he was mentally disturbed, so he shouldn't have been in jail at all.
+25. The same poor man had shared prison for a time with the Marquis de Sade. No wonder he was disturbed.
+26. The Franco-Prussian War. Started by the French because they didn't like the wording of a telegram.
+27. The Treaty of Versailles.
+28. We supplied a French-speaking referee, Alain Rolland, for last month's France-Wales game. And how did they repay his respect for their language? By addressing him as "Tu", that's how!
+29. We asked them for an army in 1798. They sent a mere 1,000 soldiers, none of them named "Napoleon".
+30. Also, they landed here in August. The main rebellion had been in June. We know it's fashionable to arrive 15 minutes late for dinner parties in France, but it doesn't work so well with insurrections.
+31. They didn't send any soldiers at all in 1803, despite repeated invitations.
+32. Even when they did supply military help, results were mixed. In 1798, they fought well at Castlebar, but were mediocre in Ballinamuck. That's the problem with French armies – you never know which side is going to turn up on the day.
+33. They "honoured" the bicentenary of 1798 by starting the Tour de France in Ireland. A succession of drug scandals later, it became known as the "Tour de Dopage".
+34. Marshal Patrice de Mac-Mahon. All right, they made him president, but where did they get that hyphen?
+35. L'Origine du Monde by Gustave Courbet (look it up). The model is believed to have been Irish. What would her poor Mammy have thought?
+36. They have a province called "Brittany". No "Irelandy", though.
+37. "I thought ten thousand swords must have leaped from their scabbards to avenge even a look that threatened her [Marie Antionette] with insult. But the age of chivalry is dead. That of sophisters, economists, and calculators has succeeded; and the glory of Europe is extinguished forever." Edmund Burke, Reflections on the Revolution in France .
+38. Did I mention Thierry Henry?
+@FrankmcnallyIT
+fmcnally@irishtimes.com
+
+Irishman's Diary
+
+IN THIS SECTION
+Tibnin Bridge: The violent death of three Irish peacekeepers
+Tibnin Bridge: The violent death of three Irish peacekeepers
+
+Listen | 19:43
+Historical re-enactment recreates drama that went into the State’s first Constitution
+Historical re-enactment recreates drama that went into the State’s first Constitution
+Michael Collins ‘dismissed threats days before he was killed at Béal na Bláth’
+Michael Collins ‘dismissed threats days before he was killed at Béal na Bláth’
+The Pitchfork murders: Fifty years of unanswered questions
+The Pitchfork murders: Fifty years of unanswered questions
+Plaque unveiled in Dublin to the Irishwoman who shot Italian dictator Benito Mussolini
+Plaque unveiled in Dublin to the Irishwoman who shot Italian dictator Benito Mussolini
+
+MOST READ
+Rory McIlroy: ‘I think it is the first time in my life that I have felt betrayal’
+Rory McIlroy: ‘I think it is the first time in my life that I have felt betrayal’
+Róisín Ingle: I let Taylor Swift’s music wash over me. Then I heard the lyrics. I nearly fell off the bed
+Róisín Ingle: I let Taylor Swift’s music wash over me. Then I heard the lyrics. I nearly fell off the bed
+‘It makes my blood boil’: Taoiseach rejects accusation Putin’s war being used to address Irish neutrality
+‘It makes my blood boil’: Taoiseach rejects accusation Putin’s war being used to address Irish neutrality
+‘I am in my 70s and in a relationship with a man 10 years my senior. I am worried I will end up caring for him’
+‘I am in my 70s and in a relationship with a man 10 years my senior. I am worried I will end up caring for him’
+When I announced my summer fling was visiting, my parents made up a bed for him in the garage
+When I announced my summer fling was visiting, my parents made up a bed for him in the garage
+
+
+
+LATEST STORIES
+Housing supply set to fall further behind demand as rising costs hit investment, Goodbody warns
+‘A question of choice’: Assisted-dying petition delivered to Dáil
+Ukrainian refugees should be housed in disused military facilities, TD Berry says
+Fines for range of road safety offences including speeding to double from midnight
+European banks’ bumper quarter raises prospect of windfall taxes
+
+© 2022 The Irish Times DAC
+
+Subscribe
+Why Subscribe?
+Subscription Bundles
+Subscription Help Centre(Opens in new window)
+Home Delivery(Opens in new window)
+Gift Subscriptions
+Support
+Contact Us
+Help Centre(Opens in new window)
+My Account
+About Us
+Advertise
+Contact Us
+The Irish Times Trust
+Careers
+Irish Times Products & Services
+ePaper
+Crosswords & puzzles
+Newspaper Archive
+Newsletters
+Article Index(Opens in new window)
+Discount Codes(Opens in new window)
+Download the app
+Download on the App Store   Download on Google Play
+MyHome.ie(Opens in new window)  •  Top 1000(Opens in new window)  •  The Gloss(Opens in new window)  •  Recruit Ireland(Opens in new window)  •  Irish Times Training(Opens in new window)
+Terms & Conditions
+Privacy Policy
+Cookie Information
+Cookie Settings
+Community Standards
+Copyright
+
+
+The Irish Times would like to send you push notifications.
+Website notifications can be changed in browser notifications preferences.
+Don't AllowAllow
 
 Search for questions, people, and topics
 Why is France so horrible?
