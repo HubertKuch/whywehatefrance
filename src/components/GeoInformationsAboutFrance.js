@@ -7,19 +7,19 @@ export default function () {
             <GeoInformation
                 icon={<i className="fa-solid fa-map fa-10xl"></i>}
                 text={"area"}
-                info={"12mi"}
+                info={"105,4 km²"}
             />
 
             <GeoInformation
                 icon={<i className="fa-solid fa-person"></i>}
-                text={"Population (normal)"}
-                info={"0"}
+                text={"Percent of Immigrants in Paris (2006)"}
+                info={"45%"}
             />
 
             <GeoInformation
                 icon={<i className="fa-solid fa-skull"></i>}
-                text={"Deaths per s"}
-                info={"4000"}
+                text={"Deaths in France (2019)"}
+                info={"600 000"}
             />
         </section>
     );
